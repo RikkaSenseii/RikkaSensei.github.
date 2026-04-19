@@ -1,2 +1,0 @@
-# RikkaSensei.github.
-Newbie
